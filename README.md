@@ -9,3 +9,8 @@ i dyed my hair to match with airi ok
 usually airi7 airi
 
 <img width="375" height="379" alt="9764" src="https://github.com/user-attachments/assets/005c2380-e979-435f-9580-5d5a92ab9ee9" />
+
+my grip is very unstable.. sometimes ill click on something while my phone is falling and ill get embarrassed so ill likely leave TwT
+
+intj
+
