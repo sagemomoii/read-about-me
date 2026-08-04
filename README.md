@@ -14,3 +14,12 @@ my grip is very unstable.. sometimes ill click on something while my phone is fa
 
 intj
 
+akiairi , shizuairi and anhane fans dnidnidnidniiii blocked
+
+if ur friends with my doubles i will block u, sorry not sorry 😬😬
+
+im a minor
+
+sua kinfirming
+
+<img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/f1499067-4e27-43bd-8a8c-4d40e662a9af" />
