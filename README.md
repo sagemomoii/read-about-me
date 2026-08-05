@@ -22,4 +22,6 @@ im a minor
 
 sua kinfirming
 
+i dont like if you sit with me / int while im with friends if not in whispers, please always ask IF im with friends (otherwise, c+h freely and int freely)
+
 <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/f1499067-4e27-43bd-8a8c-4d40e662a9af" />
