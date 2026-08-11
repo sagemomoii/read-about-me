@@ -8,8 +8,7 @@ i dyed my hair to match with airi ok
 
 usually airi7 airi
 
-<img width="375" height="379" alt="9764" src="https://github.com/user-attachments/assets/005c2380-e979-435f-9580-5d5a92ab9ee9" />
-
+she/ her / they/ them doll/ dollself angel/angelself meow/ meowself
 my grip is very unstable.. sometimes ill click on something while my phone is falling and ill get embarrassed so ill likely leave TwT
 
 intj
@@ -25,3 +24,5 @@ sua kinfirming
 i dont like if you sit with me / int while im with friends if not in whispers, please always ask IF im with friends (otherwise, c+h freely and int freely)
 
 <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/f1499067-4e27-43bd-8a8c-4d40e662a9af" />
+
+
