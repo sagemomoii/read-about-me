@@ -11,7 +11,9 @@ usually airi7 airi
 she/ her / they/ them doll/ dollself angel/angelself meow/ meowself
 my grip is very unstable.. sometimes ill click on something while my phone is falling and ill get embarrassed so ill likely leave TwT
 
-intp  6w5  628
+intp  6w5  628 
+help mistype thats outdated
+INTP • 2w1 • so268 
 
 akiairi , shizuairi and anhane fans dnidnidnidniiii blocked
 
