@@ -1,30 +1,29 @@
-i generally dont int first,, im sorry, even if ur the coolest person alive i wont int, its a bad habit / fear of being ignored or pushed aside!! i generally do want more friends tho
+hi hi hi im sage
+minor
+sys (collective name is sage gulp)
+usually airi7 airi at pjsk area
+airi momoi yume (doubles strictly dni.) kangel yume (doubles int) tsuriel PPY yume (doubles int)
+so268 (semi unhealthy) intp 2w1 
+they / them / she / hers / doll / dollself / angel / angelself ><
 
-suspected bpd, OSDD-1b sys
+<img width="1224" height="236" alt="10153" src="https://github.com/user-attachments/assets/8abaeb6e-e6c2-4205-a5c9-1f1f0289dec1" />
 
-taken!
+     pony!! ^
+     
 
-i dyed my hair to match with airi ok
+i am usually afk, w2i
+ill rarely accept party/frqs, sorry.
+i dont int first.... sooo
+feel free to int/c*h, always! i love making new friends ^^ <(unless im with other ppl talking, then iwc / dniuid / ask.)
 
-usually airi7 airi
-
-she/ her / they/ them doll/ dollself angel/angelself meow/ meowself
-my grip is very unstable.. sometimes ill click on something while my phone is falling and ill get embarrassed so ill likely leave TwT
-
-intp  6w5  628 
-help mistype thats outdated
-INTP • 2w1 • so268 
-
-akiairi , shizuairi and anhane fans dnidnidnidniiii blocked
-
-if ur friends with my doubles i will block u, sorry not sorry 😬😬
-
-im a minor
-
-sua kinfirming
-
-i dont like if you sit with me / int while im with friends if not in whispers, please always ask IF im with friends (otherwise, c+h freely and int freely)
-
-<img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/f1499067-4e27-43bd-8a8c-4d40e662a9af" />
+<img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/493370ad-1a92-4d25-843a-2d6df7174283" />
 
 
+ tfc fans strictly dni
+ shizuairi n anhane fans dni
+
+the rest is js
+ basic dni.
+
+ <img width="498" height="65" alt="9685" src="https://github.com/user-attachments/assets/443dd11a-0fa0-4b7e-ab74-755b97278077" />
+<img width="2048" height="2048" alt="10255" src="https://github.com/user-attachments/assets/48db4e28-3179-4c7b-ace6-15768246a9a4" />
