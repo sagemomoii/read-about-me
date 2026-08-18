@@ -1,7 +1,7 @@
 hi hi hi im sage
 minor
 sys (collective name is sage gulp)
-usually airi7 airi at pjsk area
+usually airi7 airi / wl3 airir at pjsk area
 airi momoi yume (doubles strictly dni.) kangel yume (doubles int) tsuriel PPY yume (doubles int)
 so268 (semi unhealthy) intp 2w1 
 they / them / she / hers / doll / dollself / angel / angelself ><
@@ -10,7 +10,9 @@ they / them / she / hers / doll / dollself / angel / angelself ><
 
      pony!! ^
      
+<img width="1272" height="244" alt="10410" src="https://github.com/user-attachments/assets/8e37e0f3-99c7-4a0f-9efc-aca60d5d4c4b" />
 
+          other pony^
 i am usually afk, w2i
 ill rarely accept party/frqs, sorry.
 i dont int first.... sooo
